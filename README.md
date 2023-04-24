@@ -1,4 +1,4 @@
-## Olá... Me chamo Pedro Augusto, espero que gostem do meu perfil🙂!
+## Olá... Espero que gostem 👋🙂!
 
 
 
